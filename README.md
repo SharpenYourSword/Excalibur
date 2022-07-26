@@ -1,6 +1,6 @@
-Sharpen Your Sword "Ministries" (non-503(1)-Mystery-Babylon) American Jesus Witnessing (Two Witness Style) | Revelation Chapter 11 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Revelation-Chapter-11/ | https://www.kingjamesbibleonline.org/1611_Revelation-Chapter-11/
+Sharpen Your Sword "Ministries" (non-503(1)-Mystery-Babylon) American Jesus Witnessing (Two Witness Style) | Revelation Chapter 11 (KJV/KJV1611), Current Online Source URLs: https://www.kingjamesbibleonline.org/Revelation-Chapter-11/ | https://www.kingjamesbibleonline.org/1611_Revelation-Chapter-11/
 
-“And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” | “And I heard another voice from heauen, saying, Come out of her, my people, that yee be not partakers of her sinnes, and that yee receiue not of her plagues:” - Revelation 18:4 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Revelation-18-4/ | https://www.kingjamesbibleonline.org/1611_Revelation-18-4/
+“And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” | “And I heard another voice from heauen, saying, Come out of her, my people, that yee be not partakers of her sinnes, and that yee receiue not of her plagues:” - Revelation 18:4 (KJV/KJV1611), Current Online Source URLs: https://www.kingjamesbibleonline.org/Revelation-18-4/ | https://www.kingjamesbibleonline.org/1611_Revelation-18-4/
 
 Note: Noosing a brother to save another is not a kind way to be. (Zero Oppression/Slavery Tolerated)
 
@@ -14,10 +14,10 @@ https://sharpenyoursword.org
 ##### Jesus Christ of Nazareth
 ##### Genesis-Revelation (KJV/KJV1611)
 ##### #LetHISPeopleGo
-##### "And oppress not the widow, nor the fatherless, the stranger, nor the poor; and ...” - Zechariah 7:10 (KJV)
-##### “And I will give power unto my two witnesses, and they shall prophesy a thousand two hundred and threescore days, clothed in sackcloth.” - Revelation 11:3 (KJV)
-##### Online Source: https://www.kingjamesbibleonline.org/Zechariah-7-10/
-##### Online Source: https://www.kingjamesbibleonline.org/Revelation-11-3/
+
+##### "And oppress not the widow, nor the fatherless, the stranger, nor the poor; and ...” | “And oppresse not the widow, nor the fatherlesse, the stranger, nor the poore, and let none of you imagine euill against his brother in your heart.” - Zechariah 7:10 (KJV/KJV1611), Current Online Source URLs: https://www.kingjamesbibleonline.org/Zechariah-7-10/ | https://www.kingjamesbibleonline.org/1611_Zechariah-7-10/
+
+##### “And I will give power unto my two witnesses, and they shall prophesy a thousand two hundred and threescore days, clothed in sackcloth.” | “And I will giue power vnto my two witnesses, and they shall prophesie a thousand two hundred and threescore dayes clothed in sackcloth.” - Revelation 11:3 (KJV/KJV1611), Current Online Source URLs: https://www.kingjamesbibleonline.org/Revelation-11-3/ | https://www.kingjamesbibleonline.org/1611_Revelation-11-3/
 
 #### Veritas, Libertas, Justitia (Lat.)
 #### Truth, Liberty And Justice
@@ -29,8 +29,8 @@ https://sharpenyoursword.org
 ##### Disabled American Constitutional Law Student
 
 # README Filename: README.md
-# README Modified Date: 07/25/2022
-# README Modified Timestamp: Approx. 23:09
+# README Modified Date: 07/26/2022
+# README Modified Timestamp: Approx. 00:26
 
 # Excalibur
 The Most Powerful Sword in The Constitutional Republic, Free &amp; Independent U.S.A! 
