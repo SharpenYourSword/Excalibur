@@ -21,9 +21,9 @@ ASCII SWORD ART SOURCE URL: https://www.asciiart.eu/weapons/swords
 GitHub Repository: https://github.com/SharpenYourSword/Excalibur/
 
 
-Update: 07/26/2022 @ Approx. 01:07
+Update: 07/26/2022 @ Approx. 13:26
 
-Sharpen Your Sword "Ministries" (non-503(1)-Mystery-Babylon) Public Law 97-280 - "The Year of The Bible" American Constitutional Jesus Witnessing by Empowerments! (Two Witness Style) | Revelation Chapter 11 (KJV/KJV1611),
+Sharpen Your Sword "Ministries" (non-503(1)-Mystery-Babylon) Public Law 97-280 - "The Year of The Bible" American Constitutional Jesus Witnessing by Mass Empowerments! (Two Witness Style) | Revelation Chapter 11 (KJV/KJV1611),
 
 Current Online Source URLs: https://www.kingjamesbibleonline.org/Revelation-Chapter-11/ | https://www.kingjamesbibleonline.org/1611_Revelation-Chapter-11/
 
