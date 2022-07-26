@@ -1,6 +1,6 @@
 Sharpen Your Sword "Ministries" (non-503(1)-Mystery-Babylon) American Jesus Witnessing (Two Witness Style) | Revelation Chapter 11 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Revelation-Chapter-11/ | https://www.kingjamesbibleonline.org/1611_Revelation-Chapter-11/
 
-“And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” - Revelation 18:4 (KJV)
+“And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” | “And I heard another voice from heauen, saying, Come out of her, my people, that yee be not partakers of her sinnes, and that yee receiue not of her plagues:” - Revelation 18:4 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Revelation-18-4/ | https://www.kingjamesbibleonline.org/1611_Revelation-18-4/
 
 Note: Noosing a brother to save another is not a kind way to be. (Zero Oppression/Slavery Tolerated)
 
@@ -30,7 +30,7 @@ https://sharpenyoursword.org
 
 # README Filename: README.md
 # README Modified Date: 07/25/2022
-# README Modified Timestamp: Approx. 23:05
+# README Modified Timestamp: Approx. 23:09
 
 # Excalibur
 The Most Powerful Sword in The Constitutional Republic, Free &amp; Independent U.S.A! 
