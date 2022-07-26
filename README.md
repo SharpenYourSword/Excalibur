@@ -30,18 +30,20 @@ https://sharpenyoursword.org
 
 # README Filename: README.md
 # README Modified Date: 07/26/2022
-# README Modified Timestamp: Approx. 00:37
+# README Modified Timestamp: Approx. 00:40
 
 # Excalibur
+
 The Most Powerful Sword in The Constitutional Republic, Free &amp; Independent U.S.A! 
+
+
            /\                                                 /\
  _         )( ______________________   ______________________ )(         _
 (_)///////(**)______________________> <______________________(**)\\\\\\\(_)
            )(                                                 )(
            \/                                                 \/
 
-# ASCII Sword Source URL: https://www.asciiart.eu/weapons/swords
-
+# ASCII SWORD SOURCE URL: https://www.asciiart.eu/weapons/swords
 
 * First Blade: U.S. Christian American Constitutionally Supreme and Binding Primary Source per Founding Documents &; 
 
