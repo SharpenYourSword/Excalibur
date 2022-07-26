@@ -30,20 +30,11 @@ https://sharpenyoursword.org
 
 # README Filename: README.md
 # README Modified Date: 07/26/2022
-# README Modified Timestamp: Approx. 00:40
+# README Modified Timestamp: Approx. 00:42
 
 # Excalibur
 
 The Most Powerful Sword in The Constitutional Republic, Free &amp; Independent U.S.A! 
-
-
-           /\                                                 /\
- _         )( ______________________   ______________________ )(         _
-(_)///////(**)______________________> <______________________(**)\\\\\\\(_)
-           )(                                                 )(
-           \/                                                 \/
-
-# ASCII SWORD SOURCE URL: https://www.asciiart.eu/weapons/swords
 
 * First Blade: U.S. Christian American Constitutionally Supreme and Binding Primary Source per Founding Documents &; 
 
@@ -68,3 +59,13 @@ g(a) [DRAGON BREATH F.10]
 
 * Second Blade: Gods Word per “In the beginning was the Word, and the Word was with God, and the Word was God.” | “That which was from þe beginning, which wee haue heard, which wee haue seene with our eyes, which wee haue looked vpon, and our hands haue handled of the word of life.” 
 - 1 John 1:1 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/John-1-1/ | https://www.kingjamesbibleonline.org/1611_1-John-1-1/ ; “In the beginning God created the heaven and the earth.” | “In the beginning God created the Heauen, and the Earth.” - Genesis (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Genesis-1-1/ | https://www.kingjamesbibleonline.org/1611_Genesis-1-1/- Revelation (KJV/KJV1611), Current Online Source URL: “The grace of our Lord Jesus Christ be with you all. Amen.” | “The grace of our Lord Iesus Christ be with you all. Amen.” - Revelation 22:21 (KJV/KJV1611), Current Online Source URL: https://www.kingjamesbibleonline.org/Revelation-22-21/ | https://www.kingjamesbibleonline.org/1611_Revelation-22-21/
+
+
+
+           /\                                                 /\
+ _         )( ______________________   ______________________ )(         _
+(_)///////(**)______________________> <______________________(**)\\\\\\\(_)
+           )(                                                 )(
+           \/                                                 \/
+           
+           ASCII ART SWORDS URL: https://www.asciiart.eu/weapons/swords 
